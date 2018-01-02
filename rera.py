@@ -1,3 +1,2 @@
 fsfdtrttw
-uyutd
-ktgyfsd
+uy
